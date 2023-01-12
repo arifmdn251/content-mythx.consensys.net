@@ -1,1 +1,1 @@
-# content-diligence.consensys.net
+# content-mythx.consensys.net
